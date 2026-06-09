@@ -169,7 +169,7 @@ Pontuação máxima por ciclo: **10 pontos** (5 variáveis × 2)
 
 ## 🎥 Vídeo Pitch
 
-[Link do YouTube](https://youtube.com/)(Ainda em produção)
+[Link do YouTube](https://youtu.be/mwRnOX7eOmc)
 
 ---
 
